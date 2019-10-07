@@ -1,5 +1,5 @@
 # edavfun2019
-This has nothing of value. Contribute whatever you like. Delete whatever you like.
+This has nothing of value. Contribute whatever you like. Delete whatever you like. It's a free world.
 
 Here's a fun inspiration for EDAV - https://www.instagram.com/the.wine.nerd/?hl=en
 
